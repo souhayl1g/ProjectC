@@ -1,2 +1,0 @@
-# ProjectC
-Fathi Team
